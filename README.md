@@ -4,6 +4,8 @@
 - 💞️ I’m looking to collaborate on Whatsasena...
 - 📫 How to reach me ... Please don't...
 
+If you want attention, buy me a coffee
+
 [![Build](https://www.buymeacoffee.com/assets/img/custom_images/yellow_img.png)](https://www.buymeacoffee.com/brut)
 
 <!---
